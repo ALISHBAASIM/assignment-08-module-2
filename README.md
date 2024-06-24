@@ -1,0 +1,2 @@
+Welcome to My Salon Website! We offer a range of beauty and grooming services tailored to help you look and feel your best. Our professional team is dedicated to providing top-notch care in a relaxing environment. Browse our services, book appointments, and explore our latest promotions. Experience the difference with us today!
+Feel free to customize it further to better match the specifics of your salon.
